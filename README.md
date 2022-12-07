@@ -1,1 +1,1 @@
-# kaisamandehistory.com
+# kaisamandehistory.edu
